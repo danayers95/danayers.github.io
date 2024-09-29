@@ -11,3 +11,8 @@ I was born in Ottawa Canada, but have lived most of my life in Raleigh, North Ca
 ## My Interests 
 In my free time, I like to play the drums, read, or spend time with my cat. I'm also trying to teach myself how to code simple little video games in my free time!
 
+### My Most Recent Musical Endeavors
+- (My Most Recent Recording) (https://open.spotify.com/album/5nsYde6AGqmBkugA3Z2O0G?si=OYSfq8zQR4G_-YknwFR1Ug) - Recorded and released in 2022. A dark indie rock album. 
+
+- (A Recent Music Video) - (https://www.youtube.com/watch?v=6B3NK2wvpuY&ab_channel=Earther) - Recorded in a garage over the course of 8 hours!
+
